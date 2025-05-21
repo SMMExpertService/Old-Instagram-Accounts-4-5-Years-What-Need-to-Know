@@ -106,6 +106,6 @@ So, what are you waiting for? **Get in touch with us today** and let’s help yo
 If you have questions or need help, **feel free to reach out**. Let’s grow your Instagram presence together!
 
 🌐[https://smmexpertservice.com](https://smmexpertservice.com)  
-📧 [contact@smmexpertservice.com](mailto:contact@smmexpertservice.com).**  
+📧 [contact@smmexpertservice.com](mailto:contact@smmexpertservice.com)
 
 ---
